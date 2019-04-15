@@ -1,2 +1,2 @@
 # Crack-Akun-FB
-https://www.thefool.zone.id
+https://www.thefoolnoob.zone.id
